@@ -1,4 +1,4 @@
-# 
+# VIP Bitdefender Total Security add-ons for Mac OS | Smart Bitdefender Total Security add-ons for PC Windows. Featuring global server network and encrypted vault — optimized for maximum performance on every platform.
 
 
 
